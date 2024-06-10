@@ -1,3 +1,5 @@
+# Élections et recomposition électorale
+
 Question du rapport au temps, et à l'urgence. À gaucher on propose des mesures de long terme et des analyses approfondies des sujets (on essaie en tout cas, en tentant de tenir compte de la complexité des enjeux). À l'extrême droite, au contraire, des mesures choc qui sont capables de répondre à l'angoisse court terme des classes moyennes et populaires
 Comme un frein d'urgence sur l'immigration, un fort protectionnisme, une régulation des prix...
 
